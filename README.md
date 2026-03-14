@@ -10,12 +10,14 @@ nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
 (s)he and 19yo
 </p> 
 <p align="center">
-ᯓ i'm not very good at communicating, so i hope you'll be the one to initiate the conversation. 
+ᯓ i'm not very good at communicating, so i hope you'll be the one to initiate the conversation.
+ᯓ would truly trust u if we were very close, and hope u won't disappoint and betray me. 
 </p>
 <p align="center">
   ⟢ 
 </p> </p> <p align="center">
 ᯓ i will joke around and talk more w the people i'm closest to, cuz i feel comfortable w them. 
+ᯓ if u have any problems, plz contact me directly for a quick resolution. 
 </p>
 
 ![gif](https://i.pinimg.com/736x/f5/4e/a1/f54ea1b2ed1979145e94bb8e6a96f81d.jpg) 
