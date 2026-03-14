@@ -6,6 +6,9 @@
 (s)he and 19yo
 </p> 
 ᯓ If there's any problem with me, please contact me privately for a quick and direct resolution.
+<p align="center">
+  ⟢
+</p>
 </p> <p align="center">
 ⸝⸝ Don't insult me when we don't know each other, or even when we do, you still deliberately do it. ⸝⸝
 </p>
