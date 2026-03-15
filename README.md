@@ -24,4 +24,4 @@ nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
   ᯓ if u have any problems, plz contact me directly for a quick resolution, thanks.
 </p>
 
-![gif](https://i.pinimg.com/736x/f5/4e/a1/f54ea1b2ed1979145e94bb8e6a96f81d.jpg) 
+![gif](https://i.pinimg.com/1200x/52/05/a8/5205a83c5640030ac4d65732584062bf.jpg) 
