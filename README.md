@@ -1,6 +1,6 @@
-![liyuu](https://komarev.com/ghpvc/?username=qwettyche&label=liyuu&color=yellow) 
+![juhun](https://komarev.com/ghpvc/?username=qwettyche&label=juhun&color=yellow) 
 ![gif](
-https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
+https://i.pinimg.com/736x/ca/bd/aa/cabdaa52e06b15024b4ebd7dd153f7a6.jpg)
 <p align="center">
 제 홈 파일 파일을 읽어주셔서 감사합니다.
  </p>
