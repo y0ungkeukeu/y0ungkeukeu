@@ -4,6 +4,9 @@ https://i.pinimg.com/736x/bf/28/e5/bf28e523934259f41289f1ef37f9a395.jpg)
 <p align="center">
 제 홈 파일 파일을 읽어주셔서 감사합니다.
   </p>
+  
+ [![Spotify](https://spotify-now-playing.p3terx.com/api/spotify)](https://open.spotify.com/user/qwettychess)
+ 
 <p align="center">
 nei or ivrae ᶻ 𝗓 𐰁 .ᐟ
 </p> <p align="center">
