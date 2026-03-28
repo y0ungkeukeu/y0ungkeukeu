@@ -5,8 +5,8 @@
   愛 : <span style="color:#a6d8ff;">puppy</span> <br>
   <span style="color:#a6d8ff;">𐔌՞ ܸ.ˬ.ܸ՞𐦯</span>
 </td><i>
-      <td align="center">
-      <img src="https://github.com/keodolle/keodolle/raw/main/8c0932222347829b216bbed0a71f4801-removebg-preview.png" width="180"/>
+   <td align="center">
+      <img src="https://github.com/keodolle/keodolle/raw/main/8c0932222347829b216bbed0a71f4801-removebg-preview.png" width="180"/</i>"kono"<i>
     </td>
   </tr>
   </table>
