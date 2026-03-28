@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-  <i>"Even if you forget everything… just mention me once."</i>
+  <i>“Tell me what you want… I’d choose you every time.”</i>
 </p>
 
 <p align="center">
