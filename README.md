@@ -1,10 +1,10 @@
 [#straw](https://menti0n.straw.page)  [#atab](https://brookeartzz.atabook.org/) 
 <table>
   <tr>
-<td valign="middle" align="center">
+</i><td valign="middle" align="center">
   愛 : <span style="color:#a6d8ff;">puppy</span> <br>
   <span style="color:#a6d8ff;">𐔌՞ ܸ.ˬ.ܸ՞𐦯</span>
-</td>
+</td><i>
     <td align="center">
       <img src="https://github.com/keodolle/keodolle/raw/main/8c0932222347829b216bbed0a71f4801-removebg-preview.png" width="180"/>
     </td>
