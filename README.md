@@ -1,7 +1,7 @@
 [#straw](https://menti0n.straw.page)  [#atab](https://brookeartzz.atabook.org/) 
 
 <p align="center">
-  <img src="https://github.com/keodolle/keodolle/raw/main/Kh%C3%B4ng_C%C3%B3_Ti%C3%AAu_%C4%90%E1%BB%81680_20260328185734-removebg-preview.png" width="300"/>
+  <img src="https://github.com/keodolle/keodolle/raw/main/Kh%C3%B4ng_C%C3%B3_Ti%C3%AAu_%C4%90%E1%BB%81680_20260328185734-removebg-preview.png" width="350"/>
 </p>
 <table>
   <tr>
