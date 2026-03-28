@@ -17,6 +17,9 @@
    ⋆🐾°
  </p>
  <p align="center">
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=keodolle.keodolle&left_color=white&right_color=white&left_text=%E2%AA%A9.%20.%E2%AA%A8"/>
+</p>
+ <p align="center">
   <img src="https://i.pinimg.com/736x/50/c0/88/50c088f5ac32cc10c4c928dff2917451.jpg" width="500"/>
 </p>
 
