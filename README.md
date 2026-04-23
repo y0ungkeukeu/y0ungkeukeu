@@ -1,3 +1,4 @@
+![@](https://visitor-badge.laobi.icu/badge?page_id=pupcolr&color=556B2F)
 <p align="center">
   <a href="https://menti0n.straw.page">#straw</a> |
   <a href="https://brookeartzz.atabook.org/">#atab</a>
